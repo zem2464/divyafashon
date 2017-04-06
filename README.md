@@ -1,2 +1,0 @@
-# divyafashon
-e commerce
